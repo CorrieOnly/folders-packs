@@ -31,3 +31,9 @@ https://bit.ly/3rOcmiS - PATARI.PK DATABASE LEAKED
 https://bit.ly/3sLyidY - DATABASE LINKS
 
 https://bit.ly/3gNamRL - BLACKHATWORLD.COM Database 784k Lines
+
+https://bit.ly/3HSiD2w - 200K mail access
+
+https://bit.ly/3BrnpBN - WANELO DATABASE [023188883 RECORDS]
+
+
