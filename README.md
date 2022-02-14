@@ -27,3 +27,7 @@ https://bit.ly/3JuoxHt - Parkmobile [21M]
 https://bit.ly/3GLWktZ - Drama.gg Database leak
 
 https://bit.ly/3rOcmiS - PATARI.PK DATABASE LEAKED
+
+https://bit.ly/3sLyidY - DATABASE LINKS
+
+https://bit.ly/3gNamRL - BLACKHATWORLD.COM Database 784k Lines
