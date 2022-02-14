@@ -1,5 +1,8 @@
 # folders-packs
 
+https://www.ismoz.com/
+https://filefinderhub.com/
+
 https://bit.ly/362hpnm - SEARCH FOR FILES
 
 https://bit.ly/34CIvRL - SEARCH FOR FILES
