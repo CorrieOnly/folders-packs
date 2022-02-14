@@ -24,3 +24,6 @@ https://bit.ly/3oN5YXh - BIGBASKET DATABASE
 
 https://bit.ly/3JuoxHt - Parkmobile [21M]
 
+https://bit.ly/3GLWktZ - Drama.gg Database leak
+
+https://bit.ly/3rOcmiS - PATARI.PK DATABASE LEAKED
